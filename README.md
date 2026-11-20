@@ -273,3 +273,4 @@ O veículo oferece **3 anos de garantia total de fábrica**, condicionada ao cum
 
 ---
 
+Link do notebook: https://notebook.google.com/notebook/b7f535e4-4456-45a1-b0a5-113581f219d6
